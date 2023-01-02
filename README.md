@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://www.davidtzur.com/](https://www.davidtzur.com/)
 
-- 📫 How to reach me **via linkedin.**
+- 📫 How to reach me **david204204@gmail.com or via linkedin.**
 
 - 📄 Know about my experiences [https://www.davidtzur.com/David%20Tzur%20CV.pdf](https://www.davidtzur.com/David%20Tzur%20CV.pdf)
 
